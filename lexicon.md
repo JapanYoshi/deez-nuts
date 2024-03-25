@@ -48,3 +48,5 @@
 |Philia|en|What’s the opposite of phobia?|Fill your mouth with deez nuts| |
 |Meta|es|¿Cómo se llama el dueño de Facebook?|Meta mis cojones en tu boca|(Put my nuts in your mouth)|
 |Crotolamo|es|Necesitamos Crotolamo.|“¿Qué escroto lamo?”|(“What scrotum do I lick?”)|
+|Ghettalo|en| |Get a load of deez nuts| |
+|Sticchio|en| |Stick your dick in an anthill|
