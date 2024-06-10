@@ -24,6 +24,7 @@
 |Throh|en| |Throat fuck deez nuts|Pokémon name. Usable in pairs with Sawk.|
 |Gulpin|en| |Gulping deez nuts|Pokémon name.|
 |1OD|en|Have you checked if you have 1OD enabled?|One o’ deez nuts|Can be used in place of a serial number, a game setting, or a band name, among others.|
+|C1-OD|en|Did you know C-3PO was nearly named C1-OD?|See one o' deez nuts|Variation of 1OD (see above).|
 |CDs|en|What did Playstation games come on?|See deez nuts| |
 |Fieldy|en|Who was Korn’s guitarist again?|Feel deez nuts|Also usable in situations where you’d expect phrases like “out of left field” or “depth of field” to be used.|
 |iLadies|en|Do you prefer e-girls or iLadies?|I lay deez nuts on your face|Almost exclusively used in contrast with “e-girls”.|
