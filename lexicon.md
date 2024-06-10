@@ -50,3 +50,5 @@
 |Crotolamo|es|Necesitamos Crotolamo.|“¿Qué escroto lamo?”|(“What scrotum do I lick?”)|
 |Ghettalo|en| |Get a load of deez nuts| |
 |Sticchio|en| |Stick your dick in an anthill|
+|Hardee’s|en| |How are deez nuts feeling in your mouth?|Hardee’s is a fast food chain. Could be most effective when the subject is on a slightly different type of restaurant. See also “Wendy’s”.|
+|Howdy|en| |How deez nuts feeling in your mouth?| |
